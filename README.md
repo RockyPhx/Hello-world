@@ -1,2 +1,2 @@
 # Hello-world
-This is just another test repository
+Hello lunatic fringe....Rocky here. I am a long time musician and IT engineer.
